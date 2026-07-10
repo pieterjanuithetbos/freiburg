@@ -3,7 +3,7 @@
 
 | ingrediënt | hoeveelheid | opmerking |
 | ---------- | ----------- | --------- |
-| ajuin      |||
+| Zwiebeln   | 2 ||
 | tomaat     |||
 | courgette  |||
 | paprika    |||

@@ -1,2 +1,3 @@
 # Freiburg
-- [essen](essen.md)
+
+![blick uber den Institut](./fotos-freiburg/institut.JPG)
