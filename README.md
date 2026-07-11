@@ -37,43 +37,35 @@ Während des zweiten Teils war es Musik von Bela Bartok. Das war mehr 'klassik'.
 Nach diese leckere Vorspeise bin ich dan mit die Gesellschaft nach die Mensa gegangen.
 Die Mensa ist ähnlich wie die Alma, und inbesondere Alma 3, in Leuven. Die Mensa ist auch ein Studentenrestaurant, auch in einen brutalistische Gebäude, und auch sehr billig (sogar billiger als die Alma!).
 
-**Am Donnerstag** sind wir zusammen in einen Biergarten gegangen (es war eine der Aktivitäten des Freizeitsprogram).
+**Am Donnerstag** sind wir nach dem Kurs zusammen mit manche andere Studenten des Goethe Instituts in einen Biergarten gegangen (es war eine der Aktivitäten des Freizeitsprogram).
+Der Biergarten liegt auf einen Berhang, oben die Stadt. 
+Also hatten wir ein schönes Ausblick auf Freiburg. 
+Hier sind einige Bilder.
+
+![blick-uber-freiburg-von-kastaniengarten](freiburg-fotos/blick-uber-freiburg-von-kastaniengarten.JPG)
+![der-dom-am-abends](freiburg-fotos/der-dom-am-abends.JPG)
+![freiburg-am-abends](freiburg-fotos/freiburg-am-abends.JPG)
 
 Über die Stadtführung die wir **am Freitag** mittgemacht haben, werde ich später etwas sagen. 
 Am Freitagabend haben wir Belgien verlieren sehen gegen Spanien in ein Café neben das Gästehaus: 'Alte Freiburg'.
 
 ## Freiburg: grüne Stadt?
+Die Freiburger nennen ihre Stadt ganz stolz 'grün'. 
+Tatsachlich gibt es dafur gute Gründe.
+Was sofort auffält, ist die Vielzahl an Fahrräder in der Stadt.
+Das ist wirklich unglaublich. 
+Die Stadtmitte ist autofrei und es gibt noch viel mehr Fahrräder hier als in Leuven.
+Weil der Urlaub noch nicht angefangen habt, ist die Stadt ganz lebendig und voll mit Studenten.
+Eine foto des Universitätsbibliothek zeigt was ich sagen möchte:
 
-- viel Fahrräder
-- essen
-- Vauban und grüne Energie
-- Grüne Oberburgemeister?
-- Fluss (Dreißem)
+![ub](freiburg-fotos/ub.JPG)
+Und sogar in der Altstadt gibt es Fahrräder:
+![sogar-fahrrader-im-altstadt](freiburg-fotos/sogar-fahrrader-im-altstadt.JPG)
 
+Einige weitere Punkte, die ich später vielleicht erklären wirde:
+- es gibt ein Initiativ, um das Essen nicht zu verderben lassen, dass man Resten in publike Lieferräder lagen kann.
+- der Stadtteil Vauban ist bekannt wegen ihre Ökologische Ideen und grüne Energie
+- auch politisch ist die Stadt grun: sie habt eine Oberbürgemeister die mit den Grünen affiliiert ist.
+- Wann es sehr heiß is, baten viele Freiburger in der Dreißem, die Fluss die neben Freiburg passiert.
 
-## Stadtführung
-
-Am Freitag habe ich mit einigen meiner Mitlerhern eine Stadtführung mitgemacht. 
-Die Führerin war eine alte Dame die in Freiburg Archäologie und Geschichte studiert had.
-Sie nahm uns mit nach vier verschiedene Haltestellen: der Resten des alter Festingungen, die Platz des altes Synagoges, das Augustinermuseum, das Schwabentor und der alter Dom.
-
-### Die Alte Festung neben die Mensa
-
-
-### Die UB und das Philosophiegebaüde
-
-Unterwegs nach die nächste Haltestelle: 
-    - Giesskanne um die Bäume zu giessen
-    - Österreichische Fahnen und Doppeladlern
-
-### Das Augustinermuseum
-
-### das Schwabentor und die Freiburger Bächle
-
-Auch in Bern (Zähringer)
-
-### Der Dom
-
-offene Turm
-jeden Tag markt
 
