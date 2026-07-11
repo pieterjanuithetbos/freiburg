@@ -25,18 +25,18 @@ und selbstverständlich ein Belgier.
 Meine Mitschülern sind sehr nett. Am Montag habe ich sie besser kennengelernt während des Orientierungsspaziergang und des Kurses am Nachmittag. 
 
 
-## Kultur-und Freizeitprogram
+## Kultur-und Freizeitprogramm
 
-**Am dienstag** konnten wir ein Sinfoniekonzert geniessen im Freiburger Konzerthaus.
-Das Konzert war ganz besoners. 
-Es gab zwei Teilen: während des erstes Teils gab es nur moderne Musik. Das heisst: kein Rhytme, keine Harmonie, sondern viele ... Klänge. 
-Während des zweiten Teils war es Musik von Bela Bartok. Das war mehr 'klassik'.
+**Am Dienstag** konnten wir ein Sinfoniekonzert genießen im Freiburger Konzerthaus.
+Das Konzert war ganz besonders. 
+Es gab zwei Teilen: während des ersten Teils gab es nur moderne Musik. Das heisst: kein Rhythmus, keine Harmonie, sondern viele ... Klänge. 
+Während des zweiten Teils war es Musik von Bela Bartok. Das war mehr 'klassische' Musik.
 
-**Am Mittwoch** gab es 'Spaghetti-eis essen' auf das Programm. Zusammen mit dem Brazilianerin, Australier Amerikaner (und einige Studenten von hohere Niveaustufen) habe ich also am 11 Uhr in der Vormittag Eis gegessen. Sehr süß! 
-Nach diese leckere Vorspeise bin ich dan mit die Gesellschaft nach die Mensa gegangen.
-Die Mensa ist ähnlich wie die Alma, und inbesondere Alma 3, in Leuven. Die Mensa ist auch ein Studentenrestaurant, auch in einen brutalistische Gebäude, und auch sehr billig (sogar billiger als die Alma!).
+**Am Mittwoch** gab es 'Spaghetti-eis essen' auf das Programm. Mit der Brazilianerin, dem Australier und dem Amerikaner (und einige Studenten aus hohere Niveaustufen) habe ich also um 11 Uhr am Vormittag Eis gegessen. Sehr süß! 
+Nach dieser leckere Vorspeise bin ich dann mit die Gesellschaft nach die Mensa gegangen.
+Die Mensa ist ähnlich wie die Alma, und insbesondere Alma 3, in Leuven. Die Mensa ist auch ein Studentenrestaurant, auch in einem brutalistische Gebäude, und auch sehr billig (sogar billiger als die Alma!).
 
-**Am Donnerstag** sind wir nach dem Kurs zusammen mit manche andere Studenten des Goethe Instituts in einen Biergarten gegangen (es war eine der Aktivitäten des Freizeitsprogram).
+**Am Donnerstag** sind wir nach dem Kurs mit manche andere Studenten des Goethe Instituts in einen Biergarten gegangen (es war eine der Aktivitäten des Freizeitsprogram).
 Der Biergarten liegt auf einen Berhang, oben die Stadt. 
 Also hatten wir ein schönes Ausblick auf Freiburg. 
 Hier sind einige Bilder.
