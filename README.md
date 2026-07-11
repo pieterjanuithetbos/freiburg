@@ -2,29 +2,28 @@
 
 ![blick uber den Institut](./freiburg-fotos/institut.JPG)
 
-**Wilkommen auf meinen digitale Tagebuch.**
-Am ersten gebe ich einige Informationen über den Kurs und meine Mitschüler. 
-Jeden Tag habe ich Unterricht von 13:30 bis 18:00, mit eine Pause von einer halbe Stunde um 15:00, und vond 15 Minute um 17:00.
-Ich mache Kurs in die Niveaustufe B2.2.  
+**Willkommen in meinem digitalen Tagebuch.**
+Zuest gebe ich einige Informationen über den Kurs und meine Mitschüler. 
+Jeden Tag habe ich Unterricht von 13:30 bis 18:00, mit einer Pause von einer halben Stunde um 15:00, und von 15 Minute um 17:00.
+Meinen Kurs mache ich der Niveaustufe B2.2.  
 Der Unterricht findet statt im Institut (cf. das Bild oben)
 
-In meine Klassegruppe gibt is viele Nationalitäten: 
+In meiner Klasse gibt es viele Nationalitäten: 
 ein Spanier, 
 eine Schweizerin, 
 eine Französin, 
 zwei Amerikaner, 
-ein Japaner (aber er hat mittlerweile von Kurs gewechselt), 
+ein Japaner (aber er hat mittlerweile den Kurs gewechselt), 
 eine Mexikanerin, 
 eine Brasilianerin, 
-ein Finne (er kommt aus das Nordosten Europas, aber ich bin nicht ganz sicher welches Land), 
+ein Finne (er kommt aus dem Nordosten Europas, aber ich bin nicht ganz sicher welchem Land), 
 ein Australier, 
 ein Pole 
 und selbstverständlich ein Belgier.
 
 
-Meinen Mitschülern sind sehr nett. Am montag habe ich ihnen besser kennen gelernt während des Orientierungsspaziergang und des Kurses am Nachmittags. 
+Meine Mitschülern sind sehr nett. Am Montag habe ich sie besser kennengelernt während des Orientierungsspaziergang und des Kurses am Nachmittag. 
 
-![dom am abends](freiburg-fotos/der-dom-am-abends.JPG)
 
 ## Kultur-und Freizeitprogram
 
@@ -66,6 +65,6 @@ Einige weitere Punkte, die ich später vielleicht erklären wirde:
 - es gibt ein Initiativ, um das Essen nicht zu verderben lassen, dass man Resten in publike Lieferräder lagen kann.
 - der Stadtteil Vauban ist bekannt wegen ihre Ökologische Ideen und grüne Energie
 - auch politisch ist die Stadt grun: sie habt eine Oberbürgemeister die mit den Grünen affiliiert ist.
-- Wann es sehr heiß is, baten viele Freiburger in der Dreißem, die Fluss die neben Freiburg passiert.
+- wann es sehr heiß is, baten viele Freiburger in der Dreißem, die Fluss die neben Freiburg passiert.
 
 
