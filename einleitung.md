@@ -1,3 +1,5 @@
+![blick-uber-institut](freiburg-fotos/blick-uber-institut.JPG)
+
 **Willkommen in meinem digitalen Tagebuch.**
 Zuest gebe ich einige Informationen über den Kurs und meine Mitschüler. 
 Jeden Tag habe ich Unterricht von 13:30 bis 18:00, mit einer Pause von einer halben Stunde um 15:00, und von 15 Minute um 17:00.
@@ -16,6 +18,8 @@ In meiner Klasse gibt es viele Nationalitäten:
 - ein Australier, 
 - ein Pole,
 - und selbstverständlich ein Belgier.
+
+
 Sie sind alle sehr nett. 
 
 
