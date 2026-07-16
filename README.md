@@ -2,15 +2,15 @@
 
 
 - [Einleitung](einleitung.md)
+- [Montag 06-07](06-07.md), erstes Kurstag
+- [Dienstag 07-07](07-07.md), Orientierungsspaziergang, Sinfoniekonzert
+- [Mittwoch 08-07](08-07.md),  Spaghetti-Eis, Mensa
+- [Donnerstag 09-07](09-07.md), Biergarten
+- [Freitag 10-07](10-07.md), Stadtfürhung, das Spiel Belgien-Spanien
+- [Samstag 11-07](11-07.md), Universitätsbibliotheek, Museum für Neue Kunst
+- [Sontag 12-07](12-07.md), Colmar, _Döner Sunday_
+- [Montag 13-07](13-07.md), Geburtstag, ein Kuchen kaufen, Kuchen essen während des Pauses
+- [Dienstag 14-07](14-07.md), Internationales Picknick am Seepark
+- [Mittwoch 15-07](15-07.md), Klavierkonzert beim Institut
 - [Freiburg: grüne Stadt?](grüne-stadt.md)
-- [Montag 06-07, erstes Kurstag](06-07.md)
-- [Dienstag 07-07, Orientierungsspaziergang, Sinfoniekonzert](07-07.md)
-- [Mittwoch 08-07, Spaghetti-Eis, Mensa](08-07.md)
-- [Donnerstag 09-07, Biergarten](09-07.md)
-- [Freitag 10-07, Stadtfürhung, das Spiel Belgien-Spanien](10-07.md)
-- [Samstag 11-07, Universitätsbibliotheek, Museum für Neue Kunst](11-07.md)
-- [Sontag 12-07, Colmar, _Döner Sunday_](12-07.md)
-- [Montag 13-07, ein Kuchen kaufen, Kuchen essen während des Pauses](13-07.md)
-- [Dienstag 14-07, Internationales Picknick am Seepark](14-07.md)
-- [Mittwoch 15-07, Klavierkonzert beim Institut](15-07.md)
 
