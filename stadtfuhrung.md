@@ -11,6 +11,8 @@ Sie nahm uns mit nach vier verschiedene Haltestellen: der Resten des alter Festi
 - Von dieser Festung bleiben jetzt nur einige Stapeln üblich.
 - Das Stadtheater und die Mensa sind z.B. auf so ein Stapel gebaut.
 
+![martinstor](freiburg-fotos/martinstor.JPG)
+
 ### Die UB und das Philosophiegebaüde
 - auf die Fassade des Philisophiegebaüde gibt es zwei interessante Sätze:
     1. 'Wahrheit macht frei'. Obwohl es aus der Bibel stammt (und 'Wahrheit' deshalb 'Christus' bedeutet), interpretiert man es meistens anders. Das heisst, das die Forschung und die Wissenschaften uns frei machen.
@@ -19,16 +21,24 @@ Unterwegs nach die nächste Haltestelle sagten wir:
     - Giesskanne um die Bäume zu giessen
     - Österreichische Fahnen und Doppeladlern
 
+![ub](freiburg-fotos/ub.JPG)
+
 ### Das Augustinermuseum
 - ist endlich volendet.
+
+![platz-vor-dem-museum](freiburg-fotos/augustinerplatz.JPG)
 
 ### das Schwabentor und die Freiburger Bächle
 - Zuerst scheinte es, dass es nicht möglich sein würde, hier eine Stadt zu gründen, da es kein trinkbares Wasser gab.
 - Die Zähringer schlagten eine Lösung vor: bächle in der Mitte des Straßen zu graben.
 - Auch in Bern (Zähringer) findet man diese Bächle
 
+
+
 ### Der Dom
 
 - war der erster Dom die einen offenen Turm hat (in Europa?)
 - er findet hier fast jeden Tag Markt statt, wo man eine 'Lange Rote' kaufen kann: eine lokale Spezialität!
 
+
+![tur-des-doms](freiburg-fotos/tur-des-doms.JPG)
