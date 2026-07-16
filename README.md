@@ -1,6 +1,5 @@
 # Widerfahren in Freiburg
 
-![blick uber den Institut](./freiburg-fotos/institut.JPG)
 
 - [Einleitung](einleitung.md)
 - [Freiburg: grüne Stadt?](grüne-stadt.md)

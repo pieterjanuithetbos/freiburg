@@ -18,3 +18,5 @@ In meiner Klasse gibt es viele Nationalitäten:
 - und selbstverständlich ein Belgier.
 Sie sind alle sehr nett. 
 
+
+![blick uber den Institut](./freiburg-fotos/institut.JPG)
