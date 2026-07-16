@@ -3,7 +3,6 @@
 ![blick uber den Institut](./freiburg-fotos/institut.JPG)
 
 - [Einleitung](einleitung.md)
-- [Über die Stadtführung](stadtfuhrung.md)
 - [Freiburg: grüne Stadt?](grüne-stadt.md)
 - [Montag 06-07, erstes Kurstag](06-07.md)
 - [Dienstag 07-07, Orientierungsspaziergang, Sinfoniekonzert](07-07.md)
