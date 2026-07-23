@@ -18,7 +18,7 @@
 - [Donnerstag 16-07](16-07.md), Mittagessen bei Café Hermann 
 - [Freitag 17-07](17-07.md), Bieren probieren im Bierhandlung 
 - [Samstag 18-07](18-07.md), Bern 
-- [Sontag 19-07](19-07.md), jogging, Besuch von Olaf, fußbalspiel schauen in der Kastaniengarten 
+- [Sontag 19-07](19-07.md), jogging, Besuch von Olaf, fußbalspiel schauen in dem Kastaniengarten 
 - [Montag 20-07](20-07.md), 
 - [Dienstag 21-07](21-07.md), Besuch Dokumentationszentrum Nationalsozialismus, Mittagessen in Café Chloé (ganz rose)
 - [Mittwoch 22-07](22-07.md), jogging mit Jack, Sommerfest
